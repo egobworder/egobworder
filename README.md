@@ -1,1 +1,1 @@
-![346928142-5e2f6b51-c6fd-4a24-934c-c7cad3f91b13](https://github.com/CALAMITYCORP/CALAMITYCORP/assets/171935007/a6142076-c421-4681-9bb2-1e9161ffc249)
+![Jake_Double_Pistol_Sparkle](https://github.com/CALAMITYCORP/CALAMITYCORP/assets/171935007/901fcbf6-f9e3-47da-be0c-81927933be65)
