@@ -1,2 +1,3 @@
-![tumblr_pbf4ai26OI1wclo4ko1_75sq](https://github.com/user-attachments/assets/5acaac1a-45fa-46ec-9676-1dc09a8b15c0)
-follow = i think your skins are beautiful
+![hi](https://komarev.com/ghpvc/?username=8koge)
+
+![blur_edges](https://github.com/user-attachments/assets/b6a1eb09-17d9-43a7-9e4c-83eb633d3da9)
