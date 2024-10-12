@@ -1,5 +1,6 @@
 <p align="center">
 
-![blur_edges](https://github.com/user-attachments/assets/b6a1eb09-17d9-43a7-9e4c-83eb633d3da9)
-![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=8koge)
+![tumblr_a53cb059cb44b79adc6157bfa209571b_dab16eaf_1280](https://github.com/user-attachments/assets/37cfcbf2-c7f1-4b5f-b1a4-0e6853628623)
+
+![hey](https://komarev.com/ghpvc/?username=8koge)
 </p>
