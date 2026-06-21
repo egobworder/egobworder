@@ -1,1 +1,2 @@
-![](https://komarev.com/ghpvc/?username=retrospects&label=hello+^_^.&color=FF9CAE)
+![](https://komarev.com/ghpvc/?username=retrospects&label=caught+u+looking&color=FF9CAE)
+osdd b2 john shedletsky on good days be patient with me....
